@@ -167,3 +167,12 @@ FairyMux/
 - 技术博客：[https://jiayu.mybabya.com/](https://jiayu.mybabya.com/)
 
 © 2025-2026 版权所有：海南仙岛 | JiaYu Blog
+
+
+<img width="1381" height="984" alt="_20260422084140_140_24" src="https://github.com/user-attachments/assets/180ab06e-be2b-4f51-8db2-126df3745cc7" />
+
+<img width="1381" height="984" alt="_20260422084151_141_24" src="https://github.com/user-attachments/assets/f929e37d-ee8f-4f59-8b8a-971b29a1c21b" />
+
+<img width="1381" height="984" alt="_20260422084231_142_24" src="https://github.com/user-attachments/assets/1302ddfa-b03d-452d-8d78-b4d2b9aaf8d4" />
+
+
